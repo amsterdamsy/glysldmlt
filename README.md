@@ -1,3 +1,3 @@
 # glysldmlt
 
-[Edit in StackBlitz next generation editor ⚡️](https://stackblitz.com/~/github.com/amsterdamsy/glysldmlt)
+https://x.com/SYX7R
